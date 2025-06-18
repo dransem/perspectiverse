@@ -1,5 +1,5 @@
 
-# The Perspectiverse - Reflexive Tension Ontology (RTO)
+# Reflexive Tension Ontology (RTO) - ⚠️Universe ✅Perspectiverse
 
 Reflexive Tension Ontology (RTO) is A minimal ontological framework derived from the irreducible fact of subjective presence: *I am* — but not *someone*, not *conscious*, simply that something appears, and the appearance is readable.
 
